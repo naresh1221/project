@@ -1,1 +1,2 @@
-# project
+Your All-in-One Gateway to T U University
+This website is the ultimate digital hub for anyone connected to T U University. It goes beyond the official portal by offering curated insights on academics, campus life, admissions tips, housing, and student reviews. For prospective students, it's a decision-making toolkit. For current students, it's a survival guide. For alumni, it's a connection point. A turn-key asset with established traffic, it’s ready to monetize through ads, affiliate links, or direct partnerships.# project
